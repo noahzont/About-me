@@ -1,6 +1,7 @@
 Bisexual, Transmasc ❤️‍🩹
 
-<img src="[https://via.placeholder.com/300x300?text=Your+Photo+Here" alt="Profile Photo](https://pin.it/4xOst1U2r)" width="200" style="border-radius: 50%; display: block; margin: 20px 0;">
+<img src="https://tenor.com/search/bucky-gifs![image](https://github.com/user-attachments/assets/acad5d4c-994c-496b-b43c-9d0597a9401a)
+" width="200" style="border-radius: 50%; display: block; margin: 20px 0;">
 
 
 - 📖 I love books! 
